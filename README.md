@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TaishiHiguchiRoos
+- 👀 I’m interested in Mechanical Keyboards, Chemistry,Physics, fountains pens, sci-fi books, and movies!
+- 🌱 I’m currently learning Chemical Engineering with Chemistry and Physics on the side
+- 📫 How to reach me by my email: hibikiroos@gmail.com
